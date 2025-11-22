@@ -42,4 +42,4 @@ https://www.youtube.com/@theshyhat this man is a legend you can check his palyli
 
 https://youtu.be/D8sXCtu4oys?si=T86fzDb4_iKVL4Tr this is one of his videos
 
-special thanks to my mentors for all the guidance and suuport
+special thanks to my mentors for all the guidance and support
